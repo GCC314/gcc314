@@ -4,9 +4,9 @@
 
 ### About Me
 
-A sophomore student studying in College of Engineering at Peking University,
+A sophomore student studying in School of Electronics Engineering and Computer Science at Peking University,
 
-majoring in Engineering Mechanics & minoring in Computer Science.
+majoring in Computer Science.
 
 ~~Just a fish catcher lol~~🤡
 
